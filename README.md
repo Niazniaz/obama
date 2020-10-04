@@ -1,1 +1,4 @@
-I really wished Bernie Sanders would have gotten the democratic nomination
+You're too late.
+Somebody has already won.
+It's me.
+I won
