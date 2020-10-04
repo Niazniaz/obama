@@ -1,2 +1,1 @@
-You're too late!
-I have won
+I really wished Bernie Sanders would have gotten the democratic nomination
